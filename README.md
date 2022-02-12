@@ -1,3 +1,7 @@
+ALL OF THE CODE IS GLIXZZY'S
+NONE OF THIS IS MINE
+
+
 # **Support discord server: https://discord.gg/RTseVPF8MA**
 
 ## **All of the hacks are located at https://schoolcheats.net/blooket**
